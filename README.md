@@ -1,2 +1,2 @@
 # everglow-site
-Everglow Brow &amp; Lashes
+Everglow Brows &amp; Lashes
